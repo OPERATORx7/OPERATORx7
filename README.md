@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OPERATORx7
-- 👀 I’m interested in AI and Video Games
+- 👀 I’m interested to make life better for everyone in the world.
 
 <!---
  I’m OPERATORx7
